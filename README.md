@@ -1,1 +1,0 @@
-# gopinathan.github.io
